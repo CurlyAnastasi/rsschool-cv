@@ -1,1 +1,1 @@
-# rsschool-cv
+https://CurlyAnastasi.github.io/rsschool-cv/cv.md
