@@ -30,3 +30,7 @@ of Oles Honchar
 
 ## **Work experience:**
 * 2017 – 2020 – Private English Teacher
+
+## **Research experience and Publications:**
+* 2017 - a participant of International scientifically- practical Conference in Kharkov with an article on a theme: " Specific of criminal responsibility for theft of electrical energy"
+* 2016 - a participant of International scientifically- practical Conference in Odessa with an article on a theme: " Specific of the contract for the sale of electrical energy". The report was devoted to the practice of "green tariff" in Ukraine.
