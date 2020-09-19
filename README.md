@@ -1,1 +1,1 @@
-https://CurlyAnastasi.github.io/rsschool-cv/cv.md
+https://CurlyAnastasi.github.io/rsschool-cv/index.html
