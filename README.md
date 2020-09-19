@@ -1,1 +1,1 @@
-https://CurlyAnastasi.io/rsschool-cv/
+https://CurlyAnastasi.github.io/rsschool-cv/
